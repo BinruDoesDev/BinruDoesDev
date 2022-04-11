@@ -11,6 +11,5 @@
 
 
 
-also yes i did remove my github and made a new one
 
 
