@@ -4,3 +4,13 @@
 - 📫 How to reach me email binru@cumallover.me or discord Binru#0090
 
 
+
+
+
+
+
+
+
+also yes i did remove my github and made a new one
+
+
